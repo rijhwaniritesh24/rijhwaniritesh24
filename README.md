@@ -24,7 +24,8 @@ Here are some of the technologies and tools I'm familiar with:
 ## Get in Touch
 
 - 📧 Email: rijhwaniritesg24@gmail.com
-- 💼 LinkedIn: [LinkedIn Profile](Your LinkedIn Profile URL)
+- 💼 LinkedIn: [LinkedIn](https://www.linkedin.com/in/ritesh-rijhwani-a496b71a7/?originalSubdomain=in)
+
 
 ## Connect with Me
 
